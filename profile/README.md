@@ -4,7 +4,7 @@
 🌈 Continuous update.<br>
 👩‍💻 Wechat The Public Number WPFDevelopers Get the tutorial.<br>
 🍿 Actively improve the WPF community<br>
-🧙 
+🧙 QQGroup: 458041663 |  340500857
 <br>
 
 |  🎁 Projects   | ⭐ Stars  |📦️ Nuget  |
